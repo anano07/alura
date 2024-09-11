@@ -1,3 +1,3 @@
 # alura
 # BÂO?
-![image](https://github.com/user-attachments/assets/c1b14004-0dee-42ad-8282-8f4673b42dbe)
+![image](https://github.com/user-attachments/assets/ace9f4cf-e8b6-48c0-bc6c-bb1459fbeb4a)
